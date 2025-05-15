@@ -1,1 +1,1 @@
-# Edunet-Foundation-Week1
+# Edunet Skills4Future Internship
